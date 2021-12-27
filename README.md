@@ -7,5 +7,5 @@ See https://github.com/MaximilianKohler/Archive/wiki
 
 ---
 
-**My blog**: https://maximiliankohler.blogspot.com/p/blog-page.html
+My blog: https://maximiliankohler.blogspot.com/p/blog-page.html
 
