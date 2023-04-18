@@ -1,5 +1,7 @@
 Archive of various subjects I had previously kept at https://web.archive.org/web/20210618042450/https://old.reddit.com/r/MaxKArchive/. 
 
+### See: https://github.com/MaximilianKohler/Archive/wiki
+
 Moving things here because the Reddit admins have steered Reddit into the sewer. https://github.com/MaximilianKohler/Archive/wiki/Reddit
 
 I will update with more links soon. 
