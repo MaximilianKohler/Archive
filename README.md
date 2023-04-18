@@ -24,8 +24,10 @@ My personal blog: https://maximiliankohler.blogspot.com/p/blog-page.html
 
 * http://www.everythingconnects.org/overpopulation-effects.html 
 
+* [Idiocracy: a disturbingly prophetic look at the future of America – and our era of stupidity](https://www.theguardian.com/culture/2021/jul/19/idiocracy-a-disturbingly-prophetic-look-at-the-future-of-america-and-our-era-of-stupidity) 
 
-We've already depleted the oceans of fish, replaced them with plastic, oil, heavy metals and other industrial pollution. We're causing massive deforestation, climate change threatening huge populations, extinction of a huge variety of animal species. Extreme animal suffering due to horrendous factory farming conditions and habitat destruction. And causing a huge amount of human suffering, [much of which comes from the rises in chronic disease and poor health, both of which have been increasing drastically in recent decades. The vast majority of people now are nowhere near healthy enough to be ethically using their bodies to create other people](https://medium.com/@MaximilianKohler/a-critical-look-at-the-current-and-longstanding-ethos-of-childbearing-the-repercussions-its-been-6e37f7f7b13f).
+
+We've already depleted the oceans of fish, replaced them with plastic, oil, heavy metals and other industrial pollution. We're doing tremendous damage to nature, such as causing massive deforestation, killing coral reefs, and more. Causing the extinction of a huge variety of animal species. Climate change threatening both our survival and the survival of huge portion of animals and habitats on our planet. Extreme animal suffering due to horrendous factory farming conditions and habitat destruction. And causing a huge amount of human suffering, [much of which comes from the rises in chronic disease and poor health, both of which have been increasing drastically in recent decades. The vast majority of people now are nowhere near healthy enough to be ethically using their bodies to create other people](https://medium.com/@MaximilianKohler/a-critical-look-at-the-current-and-longstanding-ethos-of-childbearing-the-repercussions-its-been-6e37f7f7b13f).
 
 ---
 
